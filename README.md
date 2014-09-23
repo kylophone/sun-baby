@@ -6,7 +6,7 @@ you remind me of something old even though you're so young;
 with your pretty little eyes, and your pretty little tongue;
 sun baby, shine on me.
 
-you're lucky mum don't bury you, like a potato or a gourd;
+you're lucky mom don't bury you, like a potato or a gourd;
 and dad would never hurt you, not even with his sword;
 i grow in the ground like a seed from a juniper;
 you shine in the sky like the star who grabs jupiter;
