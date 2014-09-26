@@ -12,7 +12,7 @@ i grow in the ground like a seed from a juniper //
 you shine in the sky like the star who grabs jupiter // 
 sun baby, shine on me.
 
-and, pink light it is white light as far as i'm concerned // 
+and pink light it is white light as far as i'm concerned // 
 the difference is a little bit, the colors they can stir // 
 i hold you in my arms, and you burn me // 
 i throw you in the air, and i set you free // 
